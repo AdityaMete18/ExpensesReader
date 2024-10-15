@@ -1,1 +1,8 @@
 # expenses_reader
+My new thing 
+
+jhfhjbdsjubskgbgkbifgsibgksb
+gjdfjgsdkjfgkjbkjvdjakvdjvjd
+
+daujghdhbfkabgfbkb
+Dagudbjuvbajvfj
